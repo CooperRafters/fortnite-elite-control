@@ -2,6 +2,7 @@
 <div align="center">
 
 <img src="https://readme-typing-svg.demolab.com?font=Orbitron&weight=800&size=43&pause=550&color=8B5CF6&center=true&vCenter=true&width=1150&height=140&lines=FORTNITE+PRIVATE+HACK+2026;VIP+AIMBOT+%7C+ESP+%7C+RADAR;ADVANCED+PRIVATE-STYLE+MENU" alt="Fortnite Private Hack 2026" />
+<img width="1364" height="735" alt="image" src="https://github.com/user-attachments/assets/9f0b4a31-d9c9-4421-b726-2b232b3d9605" />
 
 <br/>
 
